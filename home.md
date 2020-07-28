@@ -7,7 +7,7 @@ I can't believe we've been quarantined for 5 months now - but hey, at least we'r
 Grateful for you and all the crazy times we've had together in these crazy times:
   * brandon4mollusks.com & mollusks4addison.com
   * our day trip to Yosemite
-    ![yosemite](/yosemite.jpeg)
+    ![yosemite](/yosemite.jpg)
   * this salt pond in Menlo Park
   * community..."I shall have...a BIRTHDAY CAKE!!"
   * matching as always
