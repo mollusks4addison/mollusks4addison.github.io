@@ -22,8 +22,5 @@ We say this every year...but next year can only be better than this one, right? 
 
 
 
-Brandon
-
 brandon@brandon4mollusks.com
 
-7/28/2020
