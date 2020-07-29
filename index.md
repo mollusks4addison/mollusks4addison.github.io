@@ -18,6 +18,6 @@ Grateful for you and all the crazy times we've had together in these crazy times
   * grilling...so much grilling
     * ![bbq](bbq.jpg)
 
-I know we said this last year...but next year can only be better than this one, right? To kick it off, I hope you enjoy your first taste of a mollusk-like echinoderm.
+We say this every year...but next year can only be better than this one, right? Here's to the best (mollusk-loving) friend (husband) I could ever ask for!
 
 <3 Brandon
