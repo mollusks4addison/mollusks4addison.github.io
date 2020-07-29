@@ -20,4 +20,4 @@ Grateful for you and all the crazy times we've had together in these crazy times
 
 We say this every year...but next year can only be better than this one, right? Here's to the best (mollusk-loving) friend (husband) I could ever ask for!
 
-<3 Brandon
+Brandon
