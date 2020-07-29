@@ -14,7 +14,7 @@ Grateful for you and all the crazy times we've had together in these crazy times
   * matching as always
     * ![match](match.jpg)
   * grilling...so much grilling
-    * ![grill](grill.jpg)
+    * ![bbq](bbq.jpg)
   
 I know we said this last year...but next year can only be better than this one, right? To kick it off, I hope you enjoy your first taste of a mollusk-like echinoderm.
 
