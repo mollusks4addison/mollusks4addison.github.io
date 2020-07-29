@@ -7,11 +7,14 @@ I can't believe we've been quarantined for 5 months now - but hey, at least we'r
 Grateful for you and all the crazy times we've had together in these crazy times:
   * brandon4mollusks.com & mollusks4addison.com
   * our day trip to Yosemite
-    * ![yosemite](yosemite.jpg =100x)
+    * ![yosemite](yosemite.jpg)
   * this salt pond in Menlo Park
+    * ![salt](salt.jpg)
   * community..."I shall have...a BIRTHDAY CAKE!!"
   * matching as always
+    * ![match](match.jpg)
   * grilling...so much grilling
+    * ![grill](grill.jpg)
   
 I know we said this last year...but next year can only be better than this one, right? To kick it off, I hope you enjoy your first taste of a mollusk-like echinoderm.
 
